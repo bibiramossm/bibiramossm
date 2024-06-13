@@ -1,4 +1,5 @@
-## Hi there 👋
+## bianca ramos torco para o palmeiras gosto de brawl stars
+![](https://tenor.com/bVQx6.gif)
 
 <!--
 **bibiramossm/bibiramossm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
