@@ -1,4 +1,7 @@
-## bianca ramos torco para o palmeiras gosto de brawl stars
+## bianca ramos martins
+• cursando terceiro ano
+• fazendo curso no alura
+• torço oara o palmeiras e jogo brawl stars
 ![](https://tenor.com/bVQx6.gif)
 
 <!--
