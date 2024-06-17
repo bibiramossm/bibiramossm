@@ -1,8 +1,9 @@
-## bianca ramos martins
+## bem vindos!
+•Bianca Ramos Martins
 • cursando terceiro ano
 • fazendo curso no alura
 • torço para o palmeiras e jogo brawl stars
-![](![Uploading image.gif…]()
+![](![image](https://github.com/bibiramossm/bibiramossm/assets/172624866/49b40260-ca16-4ffc-878c-c6522c199dcd)
 )
 
 <!--
