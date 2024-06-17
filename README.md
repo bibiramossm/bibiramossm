@@ -1,8 +1,9 @@
 ## bianca ramos martins
 • cursando terceiro ano
 • fazendo curso no alura
-• torço oara o palmeiras e jogo brawl stars
-![](https://tenor.com/bVQx6.gif)
+• torço para o palmeiras e jogo brawl stars
+![](![Uploading image.gif…]()
+)
 
 <!--
 **bibiramossm/bibiramossm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
