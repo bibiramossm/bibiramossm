@@ -3,8 +3,9 @@
 • cursando terceiro ano
 • fazendo curso no alura
 • torço para o palmeiras e jogo brawl stars
-![](![image](https://github.com/bibiramossm/bibiramossm/assets/172624866/49b40260-ca16-4ffc-878c-c6522c199dcd)
+![](![image](https://github.com/bibiramossm/bibiramossm/assets/172624866/33c2618e-78fb-44ae-8cdd-dfca4beeaa44)
 )
+
 
 <!--
 **bibiramossm/bibiramossm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
